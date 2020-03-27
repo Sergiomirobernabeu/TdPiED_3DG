@@ -19,3 +19,6 @@
 [NO ES NO]( finals_sergio_miro5.mp4)
 ## p6
 ## p7
+[Cuideu-vos]( finals_sergio_miro7.gif)
+
+[Cuideu-vos]( finals_sergio_miro7.mp4)
