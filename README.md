@@ -2,7 +2,7 @@
 ## p1
 [Quan tu vas ella torna]( finals_sergio_miro.gif)
 
-[Quan tu vas ella torna]()
+[Quan tu vas ella torna]( finals_sergio_miro.mp4)
 ## p2
 ## p3
 ## p4
