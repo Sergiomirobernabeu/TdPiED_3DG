@@ -5,6 +5,7 @@
 [Quan tu vas ella torna]( finals_sergio_miro.mp4)
 ## p2
 [Xaloc]( finals_sergio_miro_2.gif)
+[Xaloc]( finals_sergio_miro_2.mp4)
 
 ## p3
 ## p4
