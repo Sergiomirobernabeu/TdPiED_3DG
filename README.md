@@ -13,6 +13,9 @@
 
 [Volta mp4]( finals_sergio_miro3.mp4)
 ## p4
+[Bend gif]( Finals_Sergio_miro4.gif)
+
+[Bend mp4]( finals_sergio_miro4.mp4)
 ## p5
 [NO ES NO gif]( finals_sergio_miro5.gif)
 
