@@ -31,3 +31,5 @@
 [Coronavirus Fest 1.0](finals_sergio_miro_8-1.tif)
 ##  p9
 [Escenari ](finals_sergio_miro_9.jpg)
+## p10
+[Escenari Kandinsky](finals_sergio_miro_10)
