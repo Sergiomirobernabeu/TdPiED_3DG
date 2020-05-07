@@ -29,5 +29,5 @@
 [Coronavirus Fest](finals_sergio_miro_8.tif)
 
 [Coronavirus Fest 1.0](finals_sergio_miro_8-1.tif)
-## p9
-[Escenari Kandisnky](finals_sergio_miro_9.jpg)
+## 9
+[Escenari ](final_sergio_miro_9.jpg)
