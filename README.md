@@ -32,4 +32,4 @@
 ##  p9
 [Escenari ](finals_sergio_miro_9.jpg)
 ## p10
-[Escenari Kandinsky](finals_sergio_miro_10)
+[Escenari Kandinsky](finals_sergio_miro_10.jpg)
