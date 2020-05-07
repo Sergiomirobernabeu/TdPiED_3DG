@@ -27,3 +27,4 @@
 [Cuideu-vos mp4]( finals_sergio_miro7.mp4)
 ## p8
 [Coronavirus Fest](finals_sergio_miro_8.tif)
+[Coronavirus Festr 1.0](finals_sergio_miro_8-1.tif)
