@@ -36,3 +36,4 @@
 ## p11
 [Modelaje Mascota](finals_sergio_miro_11.jpg)
 # Prácticas adicionales 
+[La vida da muchas vueltas](sergio_miro_finals_1+.gif)
