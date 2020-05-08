@@ -36,6 +36,6 @@
 ## p11
 [Modelaje Mascota](finals_sergio_miro_11.jpg)
 # Prácticas adicionales 
-[La vida da muchas vueltas](finals_sergio_miro_1+.gif)
+[Las vueltas dan mucha vida](finals_sergio_miro_1+.gif)
 
-[La vida da muchas vueltas](finals_sergio_miro_1+.mp4)
+[Las vueltas dan mucha vida](finals_sergio_miro_1+.mp4)
