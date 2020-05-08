@@ -35,3 +35,4 @@
 [Escenari Kandinsky](finals_sergio_miro_10.jpg)
 ## p11
 [Modelaje Mascota](finals_sergio_miro_11.jpg)
+# Prácticas adicionales 
