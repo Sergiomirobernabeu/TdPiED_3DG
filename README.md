@@ -43,3 +43,15 @@
 [Snake gif](finals_sergio_miro_2+.gif)
 
 [Snake mp4](finals_sergio_miro_2+.mp4)
+
+[Escenario 2](finals_sergio_miro_3+.jpg)
+
+[Composición geométrica](finals_sergio_miro_4+.jpg)
+
+[Water Drops](finals_sergio_miro_5+.jpg)
+
+[Bola de nieve 1](finals_sergio_miro_6+.jpg)
+
+[Bola de nieve 2](finals_sergio_miro_7+.jpg)
+
+[Portada Cover Rels B](finals_sergio_miro_8+.jpg)
