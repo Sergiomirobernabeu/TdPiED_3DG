@@ -39,3 +39,7 @@
 [Las vueltas dan mucha vida gif](finals_sergio_miro_1+.gif)
 
 [Las vueltas dan mucha vida mp4](finals_sergio_miro_1+.mp4)
+
+[Snake gif](finals_sergio_miro_2+.gif)
+
+[Snake mp4](finals_sergio_miro_2+.mp4)
